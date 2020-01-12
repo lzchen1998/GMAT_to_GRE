@@ -53,7 +53,7 @@
 
 写累了，直接这么搜吧。本人不是大神，决定是否转考之前也请参考下这些大神的帖子：
 
-[无法科学上网点这里](https://www.baidu.com/s?ie=utf-8&wd=转 gre site:chasedream.com -转让)，[科学上网入口](https://www.google.com/search?q=转+gre+site%3Achasedream.com+-转让&ie=UTF-8)
+[无法科学上网点这里](https://www.baidu.com/s?ie=utf-8&wd=%E8%BD%AC%20gre%20site:chasedream.com%20-%E8%BD%AC%E8%AE%A9)，[科学上网入口](https://www.google.com/search?q=转+gre+site%3Achasedream.com+-转让&ie=UTF-8)
 
 
 
